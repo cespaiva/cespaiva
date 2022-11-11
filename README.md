@@ -20,3 +20,6 @@ hooked into the digital world and want to learn more about it but on my own pace
 
 🔧👷🧱 I'm looking foward to make some cool projects and even contribute if anyone wants! i mean, thats always something to learn out there *RIGHT?* 🔧👷🧱
 
+
+
+![cesarA4 (1)](https://user-images.githubusercontent.com/11250883/201373849-e050b5ae-3f0f-4610-b6b5-e163e6c23679.png)
